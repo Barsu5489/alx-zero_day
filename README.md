@@ -1,1 +1,1 @@
-Collacoration is important
+Collaboration is important
